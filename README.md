@@ -13,7 +13,7 @@ Click around, soak in the vibes, and know that every bit of this exists because 
 
 ✨The Moon is Pretty isn't it!?!🌙💞  
 
-— Your biggest fan (and favorite developer)  
+— Your biggest fan (and favorite person ig?!?!)  
 
 ---
 
